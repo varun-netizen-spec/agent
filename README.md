@@ -1,1 +1,1 @@
-# agent
+# agentic ai for technology 
